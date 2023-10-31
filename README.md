@@ -1,4 +1,4 @@
-# Flash2
+no updates available 
 
 world no 1 faster web browser
 
